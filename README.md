@@ -1,5 +1,5 @@
 ![hi](https://files.catbox.moe/xx40ly.png) 
-![l](https://creep.crd.co/assets/images/gallery04/6116a79c.png?v=9fb44b0b)･ ⋆ ･ ⠄⠄⠂⋆ ･ ⠄⠂⋆ ･ ⋆ ･ ⠄⠂⋆ ･･ ⋆ ･ ![ah](https://pixelsafari.neocities.org/text/love12.gif)
+![l](https://creep.crd.co/assets/images/gallery04/6116a79c.png?v=9fb44b0b)･ ⋆ ･ ⠄⠄⠂⋆ ･ ⠄⠂⋆ ･ ⋆ ･ ⠄⠂⋆ ･･ ⋆ ･ ![ah](https://www7.lunapic.com/editor/working/171244129251513283?39975)
 ## $\text{\color{#989fb2}{"Every moment hesitated is a moment gone from life." 𒀭 }}$
 ### ![hihi](https://www7.lunapic.com/editor/working/171244129251513283?58414) ![guh](https://www7.lunapic.com/editor/working/171244120961146177?60424) ![nhg](https://graphic.neocities.org/Rose_11.gif)
 ## $\text{\color{#7b8eaa}{"If you let the fly live, the spider is going to die. You can't save both without one suffering."}}$
