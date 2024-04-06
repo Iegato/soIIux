@@ -1,1 +1,1 @@
-### ![guh](https://imgur.com/a/3QT99kM)
+### ![guh](https://i.imgur.com/ZaTcInK.png)
