@@ -1,5 +1,5 @@
 ![hi](https://files.catbox.moe/xx40ly.png) 
-![l](https://i.imgur.com/gEh9I28.png)･ ⋆ ･⠄⠂⋆ ･ ![](https://komarev.com/ghpvc/?username=soIIux) ･ ⋆ ･ ⠄⠂⋆ ･･ ⋆ ･ ![ah](https://imgur.com/YPSwNwT.png)
+![l](https://i.imgur.com/gEh9I28.png)･ ⋆ ･⠄⠂⋆ ･ ![](https://komarev.com/ghpvc/?username=soIIux) ･ ⋆ ･ ⠄･ ![ah](https://imgur.com/YPSwNwT.png)
 ## $\text{\color{#989fb2}{"Every moment hesitated is a moment gone from life." 𒀭 }}$
 ⠀⠀ ⠀⠀⠀⠀⠀ ![hihi](https://imgur.com/SVChoeT.png) ![guh](https://imgur.com/Sjc32Qr.png) ![nhg](https://graphic.neocities.org/Rose_11.gif)
 ## $\text{\color{#7b8eaa}{"If you let the fly live, the spider is going to die. You can't save both without one suffering."}}$
