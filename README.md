@@ -1,5 +1,5 @@
 ![hi](https://files.catbox.moe/xx40ly.png) 
-# dont follow me if ur a freak lmao + i am 13 !!
+# remaking ignore this 4 now
 
 ![l](https://i.imgur.com/U3yQVYF.png)･ ⋆ ･⠄⠂⋆ ･ ![](https://komarev.com/ghpvc/?username=soIIux) ･ ⋆ ･ ⠄･ ![ah](https://imgur.com/YPSwNwT.png)
 ## $\text{\color{#989fb2}{"Every moment hesitated is a moment gone from life." 𒀭 }}$
