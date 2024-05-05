@@ -1,6 +1,6 @@
 time has come , 3 2 1
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
- ![](https://komarev.com/ghpvc/?soiiux&color=blueviolet)‎  ‎ ‎
+ ![](https://komarev.com/ghpvc/?username=soiiux&color=blueviolet)‎  ‎ ‎
 pls follow me
 
 
