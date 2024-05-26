@@ -1,7 +1,7 @@
 ![](https://watermelon.crd.co/assets/images/gallery19/e0c02c61.gif?v=58fed03f)
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
  ![](https://komarev.com/ghpvc/?username=soiiux&color=yellow)‎  ‎ ‎
-pls follow me uhhmm ill make this pretty eventuallu 
+ uhhmm ill make this pretty eventuallu 
 ![](https://watermelon.crd.co/assets/images/gallery19/e0c02c61.gif?v=58fed03f)
 ![](https://64.media.tumblr.com/59234d5fa07604a36a4d36bf93bb558f/67a9056589060887-d6/s1280x1920/f7fcf0b9c81aae47520f72cf18a73b1229025b92.jpg) 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://wilardo.crd.co/assets/images/gallery21/6cfc0531.jpg?v=87117d4a)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
