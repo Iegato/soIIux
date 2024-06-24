@@ -1,6 +1,6 @@
 <p align="center">
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
- ![](https://komarev.com/ghpvc/?username=soiiux&color=blue)‎  ‎ ‎
+//  ![](https://komarev.com/ghpvc/?username=soiiux&color=blue)‎  ‎ ‎
  uhhmm ill make this pretty eventuallu 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀  ![auh](https://i.imgur.com/1PTmspS.png) 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀ ⠀⠀⠀⠀⠀⠀⠀
