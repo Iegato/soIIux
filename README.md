@@ -2,7 +2,7 @@
 [![div](https://64.media.tumblr.com/005b28d7ba44de9026e315302a83ad26/57b3235f71e847a0-60/s2048x3072/d97bc2f1c44ac25e99d2c53eafa59a647a967e56.pnj)
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=soiiux&color=blue)‎  ‎ ‎
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![auh](https://i.imgur.com/1PTmspS.png) 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![auh](https://i.imgur.com/1PTmspS.png) 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀ ⠀⠀⠀⠀⠀⠀⠀
 my tongues the only muscle in my body that works harder than my heart AHH hhhAHHH I LOVE BRAND NEW AHHHH TGHFHJJHHH AHHHHHHHHHHHHHHHHHHH OH MY GOD THEY JSUT HIT THE PENTAG
 
