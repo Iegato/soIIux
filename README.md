@@ -1,6 +1,6 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
- ![](https://komarev.com/ghpvc/?username=soiiux&color=red)‎  ‎ ‎
+ ![](https://komarev.com/ghpvc/?username=soiiux&color=blue)‎  ‎ ‎
  uhhmm ill make this pretty eventuallu 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀  ![auh](https://i.imgur.com/1PTmspS.png) 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀ ⠀⠀⠀⠀⠀⠀⠀
